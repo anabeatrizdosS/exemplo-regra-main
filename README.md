@@ -6,4 +6,5 @@ Quando eu era criança, minha vida era uma grande bagunça de risadas e confusõ
        Minha infância foi cheia de trapalhadas e risos, e com Shrek ao meu lado, tudo se resolvia — mesmo que eu estivesse sempre assustado!
 
 teste de incrementação ~~não altera a história principal
+teste 2 de incrmentação ~~ não altera a história principal
 
