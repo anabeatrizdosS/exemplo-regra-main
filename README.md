@@ -1,1 +1,5 @@
-Historia engraçada
+﻿Quando eu era pequene, eu e a minha mãe assistiamos muito Animal Plamet e nós viamos os profissionais pegando lagartos e cobras com as mãos. Nós morávamos numa chácara em um condomínio, e debaixo do pisso da nossa varanda, vivia um teiú. Ele fez uma toca ali.
+Um dia, eu estava brincando do lado de fora com um casaco de pele de cordeiro super grosso no qual eu mal conseguia me mover. Meu pai não estava em casa e minha mãe estava dormindo. E eu encontri o teiú tomando sol fora da toca. Como qualquer criança sem supervisão, eu consegui chegar perto do teiú e eu agarrei ele.
+Eu tinha oito anos na época e obviamenete não tinha força para levantar um teiú adulto só com a força dos braços, então eu abracei ele contra o meu corpo. Ele começou a se debater e me deu uma rabada, então eu segurei ele para o outro lado e ele me mordeu no ombro.
+Aquele casaco de pele grosso que eu odiava salvou a minha vida, porque aonde ele mordeu, passa uma artéria. Enfim, eu caí pra trás, o teiú saiu correndo e nós nunca mais o
+vimos lá em casa. Minha mãe só ficou sabendo quando eu tinha 14 anos e lembrei que isso aconteceu. :3
