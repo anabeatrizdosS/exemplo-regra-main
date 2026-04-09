@@ -5,3 +5,5 @@ Quando eu era criança, minha vida era uma grande bagunça de risadas e confusõ
        Mesmo com todos os sustos, eu nunca estava sozinho. Meu amigo Shrek estava sempre por perto, mesmo quando eu dava um jeito de me meter em problemas. Era como se as coisas sempre dessem errado, mas, no fim, tudo dava certo, e a gente se divertia do mesmo jeito.
        Minha infância foi cheia de trapalhadas e risos, e com Shrek ao meu lado, tudo se resolvia — mesmo que eu estivesse sempre assustado!
 
+teste de incrementação ~~não altera a história principal
+
